@@ -1,4 +1,4 @@
-
+professional Affinity Photo for macOS Panel | content-aware fill + blend modes offers the most advanced Affinity Photo for macOS panel, with content-aware fill and blend modes.
 
 
 
